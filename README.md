@@ -20,3 +20,6 @@ onwneot
 
 
 owonwe 
+
+
+dev ops scrum team sysn
